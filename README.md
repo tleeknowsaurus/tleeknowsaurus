@@ -6,6 +6,10 @@ me: yes... ppl keeping doin edits of you
 
 han: heh dont worry babe, im only yours
 
+
+![image_alt](https://github.com/tleeknowsaurus/tleeknowsaurus/blob/main/3402fb1622499c494c4d25f0f2b8ccaa.gif?raw=true)
+
+@6llutes hi bud uhm kisses
 <!--
 **tleeknowsaurus/tleeknowsaurus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
