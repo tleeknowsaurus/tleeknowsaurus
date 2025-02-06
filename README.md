@@ -1,4 +1,10 @@
-## Hi there 👋
+me: checking tiktok
+
+han: hugs my back and kisses my neck.. on tiktok again my love?
+
+me: yes... ppl keeping doin edits of you
+
+han: heh dont worry babe, im only yours
 
 <!--
 **tleeknowsaurus/tleeknowsaurus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
